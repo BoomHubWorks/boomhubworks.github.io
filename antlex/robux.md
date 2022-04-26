@@ -6,7 +6,7 @@
 - 400 RBX : 60 TL
 - 500 RBX : 75 TL
 - 600 RBX : 90 TL
-- 700 RBX : 95 TL (10 TL İNDİRİM!)
+- 700 RBX : 95 TL // 10 TL İNDİRİM
 -----------------------------
 ### STOCK
 - Daha Stocklamadık, bekle 2 hafta!
