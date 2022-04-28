@@ -9,4 +9,4 @@
 - 700 RBX : 95 TL // 10 TL İNDİRİM
 -----------------------------
 ### STOCK
-- Daha Stocklamadık, bekle 2 hafta!
+- 320 RBX (PENDING/5-7 GÜNDE)
